@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-26 23:55 (IR Time)
+- 📥 **[من چجوری از لپ تاپ خودم نگهداری میکنم؟.mp4](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/%D9%85%D9%86%20%DA%86%D8%AC%D9%88%D8%B1%DB%8C%20%D8%A7%D8%B2%20%D9%84%D9%BE%20%D8%AA%D8%A7%D9%BE%20%D8%AE%D9%88%D8%AF%D9%85%20%D9%86%DA%AF%D9%87%D8%AF%D8%A7%D8%B1%DB%8C%20%D9%85%DB%8C%DA%A9%D9%86%D9%85%D8%9F.mp4)**
+
+
 ### 📅 2026-04-26 23:08 (IR Time)
 - 📥 **[عادات کوچکی که احترام شما را نابود می‌کند.mp4](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/%D8%B9%D8%A7%D8%AF%D8%A7%D8%AA%20%DA%A9%D9%88%DA%86%DA%A9%DB%8C%20%DA%A9%D9%87%20%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%85%20%D8%B4%D9%85%D8%A7%20%D8%B1%D8%A7%20%D9%86%D8%A7%D8%A8%D9%88%D8%AF%20%D9%85%DB%8C%E2%80%8C%DA%A9%D9%86%D8%AF.mp4)**
 
