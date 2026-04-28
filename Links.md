@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-28 23:38 (IR Time)
+- 📥 **[javidgorz-1.0.5-universal_976348.apk.zip](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/javidgorz-1.0.5-universal_976348.apk.zip)**
+
+
 ### 📅 2026-04-28 23:17 (IR Time)
 - 📥 **[KTP_2_(1).mp3](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/KTP_2_%281%29.mp3)**
 
