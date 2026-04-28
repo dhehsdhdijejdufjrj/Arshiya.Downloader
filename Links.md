@@ -2,6 +2,13 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-28 10:43 (IR Time)
+- 📥 **[آشنایی با گروپ پالیسی ویندوز و نحوه کار با آن - Group Policy.mp4.zip](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/%D8%A2%D8%B4%D9%86%D8%A7%DB%8C%DB%8C%20%D8%A8%D8%A7%20%DA%AF%D8%B1%D9%88%D9%BE%20%D9%BE%D8%A7%D9%84%DB%8C%D8%B3%DB%8C%20%D9%88%DB%8C%D9%86%D8%AF%D9%88%D8%B2%20%D9%88%20%D9%86%D8%AD%D9%88%D9%87%20%DA%A9%D8%A7%D8%B1%20%D8%A8%D8%A7%20%D8%A2%D9%86%20-%20Group%20Policy.mp4.zip)**
+- 📥 **[آشنایی با گروپ پالیسی ویندوز و نحوه کار با آن - Group Policy.mp4.z01](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/%D8%A2%D8%B4%D9%86%D8%A7%DB%8C%DB%8C%20%D8%A8%D8%A7%20%DA%AF%D8%B1%D9%88%D9%BE%20%D9%BE%D8%A7%D9%84%DB%8C%D8%B3%DB%8C%20%D9%88%DB%8C%D9%86%D8%AF%D9%88%D8%B2%20%D9%88%20%D9%86%D8%AD%D9%88%D9%87%20%DA%A9%D8%A7%D8%B1%20%D8%A8%D8%A7%20%D8%A2%D9%86%20-%20Group%20Policy.mp4.z01)**
+- 📥 **[آشنایی با گروپ پالیسی ویندوز و نحوه کار با آن - Group Policy.mp4.z02](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/%D8%A2%D8%B4%D9%86%D8%A7%DB%8C%DB%8C%20%D8%A8%D8%A7%20%DA%AF%D8%B1%D9%88%D9%BE%20%D9%BE%D8%A7%D9%84%DB%8C%D8%B3%DB%8C%20%D9%88%DB%8C%D9%86%D8%AF%D9%88%D8%B2%20%D9%88%20%D9%86%D8%AD%D9%88%D9%87%20%DA%A9%D8%A7%D8%B1%20%D8%A8%D8%A7%20%D8%A2%D9%86%20-%20Group%20Policy.mp4.z02)**
+- 📥 **[آشنایی با گروپ پالیسی ویندوز و نحوه کار با آن - Group Policy.mp4.zip](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/%D8%A2%D8%B4%D9%86%D8%A7%DB%8C%DB%8C%20%D8%A8%D8%A7%20%DA%AF%D8%B1%D9%88%D9%BE%20%D9%BE%D8%A7%D9%84%DB%8C%D8%B3%DB%8C%20%D9%88%DB%8C%D9%86%D8%AF%D9%88%D8%B2%20%D9%88%20%D9%86%D8%AD%D9%88%D9%87%20%DA%A9%D8%A7%D8%B1%20%D8%A8%D8%A7%20%D8%A2%D9%86%20-%20Group%20Policy.mp4.zip)**
+
+
 ### 📅 2026-04-28 01:46 (IR Time)
 - 📥 **[3ygz4oowkvfimycwqlj2_954122.mp4](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/3ygz4oowkvfimycwqlj2_954122.mp4)**
 
