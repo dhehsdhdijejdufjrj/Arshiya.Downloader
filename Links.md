@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-28 16:38 (IR Time)
+- 📥 **[ساخت فیلترشکن شخصی و تانلینگ امن با سرویس‌های ابری! (GooseRelayVPN)😍.mp4](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/%D8%B3%D8%A7%D8%AE%D8%AA%20%D9%81%DB%8C%D9%84%D8%AA%D8%B1%D8%B4%DA%A9%D9%86%20%D8%B4%D8%AE%D8%B5%DB%8C%20%D9%88%20%D8%AA%D8%A7%D9%86%D9%84%DB%8C%D9%86%DA%AF%20%D8%A7%D9%85%D9%86%20%D8%A8%D8%A7%20%D8%B3%D8%B1%D9%88%DB%8C%D8%B3%E2%80%8C%D9%87%D8%A7%DB%8C%20%D8%A7%D8%A8%D8%B1%DB%8C%21%20%28GooseRelayVPN%29%F0%9F%98%8D.mp4)**
+
+
 ### 📅 2026-04-28 10:43 (IR Time)
 - 📥 **[آشنایی با گروپ پالیسی ویندوز و نحوه کار با آن - Group Policy.mp4.zip](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/%D8%A2%D8%B4%D9%86%D8%A7%DB%8C%DB%8C%20%D8%A8%D8%A7%20%DA%AF%D8%B1%D9%88%D9%BE%20%D9%BE%D8%A7%D9%84%DB%8C%D8%B3%DB%8C%20%D9%88%DB%8C%D9%86%D8%AF%D9%88%D8%B2%20%D9%88%20%D9%86%D8%AD%D9%88%D9%87%20%DA%A9%D8%A7%D8%B1%20%D8%A8%D8%A7%20%D8%A2%D9%86%20-%20Group%20Policy.mp4.zip)**
 - 📥 **[آشنایی با گروپ پالیسی ویندوز و نحوه کار با آن - Group Policy.mp4.z01](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/%D8%A2%D8%B4%D9%86%D8%A7%DB%8C%DB%8C%20%D8%A8%D8%A7%20%DA%AF%D8%B1%D9%88%D9%BE%20%D9%BE%D8%A7%D9%84%DB%8C%D8%B3%DB%8C%20%D9%88%DB%8C%D9%86%D8%AF%D9%88%D8%B2%20%D9%88%20%D9%86%D8%AD%D9%88%D9%87%20%DA%A9%D8%A7%D8%B1%20%D8%A8%D8%A7%20%D8%A2%D9%86%20-%20Group%20Policy.mp4.z01)**
