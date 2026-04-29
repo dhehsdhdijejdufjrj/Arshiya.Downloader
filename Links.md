@@ -2,6 +2,12 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-29 09:16 (IR Time)
+- 📥 **[Lightroom Premium v11.3.1 - androforever.com.apk.zip](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/Lightroom%20Premium%20v11.3.1%20-%20androforever.com.apk.zip)**
+- 📥 **[Lightroom Premium v11.3.1 - androforever.com.apk.z01](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/Lightroom%20Premium%20v11.3.1%20-%20androforever.com.apk.z01)**
+- 📥 **[Lightroom Premium v11.3.1 - androforever.com.apk.zip](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/Lightroom%20Premium%20v11.3.1%20-%20androforever.com.apk.zip)**
+
+
 ### 📅 2026-04-28 23:38 (IR Time)
 - 📥 **[javidgorz-1.0.5-universal_976348.apk.zip](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/javidgorz-1.0.5-universal_976348.apk.zip)**
 
